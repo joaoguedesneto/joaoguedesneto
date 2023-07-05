@@ -1,1 +1,1 @@
-For more, please go to joaoguedesneto.github.io/about
+For more, please go to joaoguedesneto.github.io
